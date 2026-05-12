@@ -1,1 +1,1 @@
-https://beaowo.github.io/portfolio-beatriz-feitosa/
+https://beaowo.github.io/beatriz-feitosa-portfolio/
